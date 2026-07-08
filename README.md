@@ -44,6 +44,8 @@ If you speak with a typing quirk please try to avoid speaking to me; its hard fo
 
 ![(Petals)](https://komarev.com/ghpvc/?username=BrainLESS07&label=%20&base=1098&color=26120A&style=flat-sqaure)
 
+(this looks so shit on mobile 💔💔)
+
 ---
 ---
 
