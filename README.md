@@ -10,8 +10,9 @@
 $\small\color{#ff3131}{\textsf{    buy a brain.}}$
 
 
+![flower](https://files.catbox.moe/ff4ruh.png)
 
-</details><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/92842895-53c2-49e3-90d2-03db930989a3" />
+
 
 
 $\small\color{#ff3131}{\textsf{    it might help.}}$
