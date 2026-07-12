@@ -27,19 +27,19 @@ $\\color{#FFFDE4}{\textsf{    AFR/ENG}}$
 
 <details>
 <summary>Games I enjoy</summary>
-Detroit: become human, Resident evil, Outlast, Slimerancher, WobbleDogs, Roblox; COS/Adopt me/Evomon, Minecraft, High on life, Until Dawn, ARK, Fears to fathom...
+Detroit: become human, Resident evil, Outlast, Slimerancher, WobbleDogs, Roblox; COS/Adopt me/Evomon/escape rooms, Minecraft, High on life, Until Dawn, ARK, Fears to fathom, Quarantine zone, 7 days to die, Palworld, Buckshot roulette...
 
 </details>
 
 <details>
 <summary>BYI</summary>
-I make out of context jokes or just in general out of pocket, I dont use tonetags im unserious most of the time, I block/hide freely, I can be super talkative or I just wont talk at all, I may leave convos without warning, I overall have a hard time reading messages and need to re-read it a couple times if its in a dark background + white text.
+I make out of context jokes or just in general out of pocket, I dont use tonetags im unserious most of the time, I block/hide freely, I can be super talkative or I just wont talk at all, I may leave convos without warning, I overall have a hard time reading messages and need to re-read it a couple times if its in a dark background + white text, I go offtopic during conversations
 
 </details>
 
 <details>
 <summary>IWC</summary>
-If you speak with a typing quirk please try to avoid speaking to me; its hard for me to read typing quirks and strange fonts, Yumeshippers, Extremely toxic, Overly sensitive; I make dark humor jokes or sometimes bring up heavy topics, DID/SYS users; i dont know how to int with people who have these 'issues'?? pls dont cancel me
+If you speak with a typing quirk please try to avoid speaking to me; its hard for me to read typing quirks and strange fonts, Yumeshippers, Extremely toxic, Overly sensitive; I make dark humor jokes or sometimes bring up heavy topics, DID/SYS users; i dont know how to int with people who have these 'issues'?? pls dont cancel me, TADC fans, HH/HB fans, FNAF fans
 
 </details>
 
